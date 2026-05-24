@@ -1,14 +1,14 @@
 ## Exchange Rates Currency Converter: Stop Guessing, Start Knowing
-[![Exchange Rates Currency Converter](https://github.com/user-attachments/assets/90896cc8-7c18-4a65-8ae7-391003940e8f)](https://ur.swpy.pro/ccdby)
+[![Exchange Rates Currency Converter](https://github.com/user-attachments/assets/90896cc8-7c18-4a65-8ae7-391003940e8f)](https://link.convertcurrency.app/currencyconverter)
 
 
 Every day, millions of people make financial decisions without knowing the real exchange rate. They hand over cash at airport kiosks that charge hidden margins. They pay for international products without converting the price first. They send money abroad on a bad rate day simply because they had no way of knowing it was bad.
 
 A good **exchange rates currency converter** changes all of that. Not by being complicated — but by being accurate, fast, and always available.
 
-[![Exchange Rates Currency Converter](https://github.com/user-attachments/assets/d4923c06-07ed-42a2-8f61-1ddf19bb4728)](https://ur.swpy.pro/ccdby)
+[![Exchange Rates Currency Converter](https://github.com/user-attachments/assets/d4923c06-07ed-42a2-8f61-1ddf19bb4728)](https://link.convertcurrency.app/currencyconverter)
 
-**[→ Download Currency Converter Free](https://ur.swpy.pro/ccdby)**
+**[→ Download Currency Converter Free](https://link.convertcurrency.app/currencyconverter)**
 
 ---
 
@@ -22,7 +22,7 @@ Currency Converter makes **exchange rates** visible. At a glance, in real time, 
 
 ## A Currency Converter Built Around Real Situations
 
-[![Exchange Rates App Screenshot](https://github.com/user-attachments/assets/0c9f2586-51e7-40ab-ad21-fa331b680e1a)](https://ur.swpy.pro/ccdby)
+[![Exchange Rates App Screenshot](https://github.com/user-attachments/assets/0c9f2586-51e7-40ab-ad21-fa331b680e1a)](https://link.convertcurrency.app/currencyconverter)
 
 There's a big gap between an **exchange rates currency converter** that looks good in screenshots and one that's actually useful in the real world. Currency Converter was designed entirely around the second kind.
 
@@ -33,7 +33,7 @@ Real situations like:
 - Calculating how much a flight abroad will actually cost in your currency
 - Checking if your freelance invoice is worth more or less than last month
 
-**[→ Get Currency Converter](https://ur.swpy.pro/ccdby)**
+**[→ Get Currency Converter](https://link.convertcurrency.app/currencyconverter)**
 
 ---
 
@@ -49,7 +49,7 @@ Convert USD to EUR, GBP to CHF, JPY to AUD, or any of 150+ currency pairs with t
 
 ### Offline Mode — Exchange Rates Without Wi-Fi
 
-[![Offline Exchange Rates Currency Converter](https://github.com/user-attachments/assets/6d023a0c-7fad-4e87-98dd-9abd1ccc5b5b)](https://ur.swpy.pro/ccdby)
+[![Offline Exchange Rates Currency Converter](https://github.com/user-attachments/assets/6d023a0c-7fad-4e87-98dd-9abd1ccc5b5b)](https://link.convertcurrency.app/currencyconverter)
 
 This is where most **exchange rates currency converter** apps fall short — and where Currency Converter pulls ahead.
 
@@ -142,9 +142,9 @@ The best **exchange rates currency converter** gets out of your way and gives yo
 ## Download the Exchange Rates Currency Converter — Free
 
 
-[![Download Exchange Rates Currency Converter](https://github.com/user-attachments/assets/90896cc8-7c18-4a65-8ae7-391003940e8f)](https://ur.swpy.pro/ccdby)
+[![Download Exchange Rates Currency Converter](https://github.com/user-attachments/assets/90896cc8-7c18-4a65-8ae7-391003940e8f)](https://link.convertcurrency.app/currencyconverter)
 
-**[→ Download Currency Converter Free](https://ur.swpy.pro/ccdby)**
+**[→ Download Currency Converter Free](https://link.convertcurrency.app/currencyconverter)**
 
 Live rates. Offline access. Full rate history. 150+ currencies. No ads. No account. No cost.
 
@@ -176,4 +176,4 @@ The app is lightweight and designed to run efficiently on any iPhone.
 
 The difference between a good financial decision and a bad one is often just information. An accurate, reliable **exchange rates currency converter** — one that works offline, shows you history, and never wastes your time — is one of the most useful tools you can have on your phone.
 
-**[→ Get Currency Converter Now](https://ur.swpy.pro/ccdby)**
+**[→ Get Currency Converter Now](https://link.convertcurrency.app/currencyconverter)**
